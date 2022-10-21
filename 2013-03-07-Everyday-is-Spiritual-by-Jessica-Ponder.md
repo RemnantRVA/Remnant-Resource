@@ -3,7 +3,7 @@ EVERYDAY IS SPIRITUAL
 
 * * *
 
-Posted on March 7th, by Jessica Ponder in [Family](http://www.remnantresource.org/category/family/), [Life](http://www.remnantresource.org/category/life/). [No Comments](http://www.remnantresource.org/everyday-is-spiritual/#respond)
+Posted on March 7th, 2013 by Jessica Ponder in [Family](http://www.remnantresource.org/category/family/), [Life](http://www.remnantresource.org/category/life/). [No Comments](http://www.remnantresource.org/everyday-is-spiritual/#respond)
 
 * * *
 
