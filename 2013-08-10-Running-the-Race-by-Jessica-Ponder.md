@@ -3,7 +3,7 @@ RUNNING THE RACE
 
 * * *
 
-Posted on August 10th, by Jessica Ponder in [Family](http://www.remnantresource.org/category/family/), [Life](http://www.remnantresource.org/category/life/). [No Comments](http://www.remnantresource.org/running-race/#respond)
+Posted on August 10th, 2013 by Jessica Ponder in [Family](http://www.remnantresource.org/category/family/), [Life](http://www.remnantresource.org/category/life/). [No Comments](http://www.remnantresource.org/running-race/#respond)
 
 * * *
 
